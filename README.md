@@ -1,7 +1,7 @@
 Hello to all internet user.Welcome to my personal webpage.
 
-About me:-My name is Eqmanul.In 2022,my age is 16.I'm a student
-in Sekolah Menengah Kebangsaan Kadok.My hobby is playing games.
+About me:-My name is Eqmanul.In 2022,my age is 16.I'm a student in a
+school somewhere.My hobby is playing games.
 When I grow up,I want to be a doctor.
 
 My mates:-I have a lot of friends since i went to the secondary
