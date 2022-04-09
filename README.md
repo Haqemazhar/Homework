@@ -1,4 +1,3 @@
-![alt text](https://images.app.goo.gl/bo4UACRyZ1dXMePKA)
 Hello to all internet user.Welcome to my personal webpage.
 
 About me:-My name is Eqmanul.In 2022,my age is 16.I'm a student
